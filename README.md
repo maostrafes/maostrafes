@@ -1,2 +1,1 @@
-# maodev
-bruh
+👋 wassup, im mao -- how r u :)
